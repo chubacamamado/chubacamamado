@@ -1,8 +1,8 @@
-- 👋 Hi, I’m MACHO_
-- 👀 I’m interested in play fre faire
-- 🌱 I’m currently learning(como dar capa)
-- 💞️ I’m looking to collaborate on ajudar os macacos
-- 📫 How to reach me zap zap
+- 👋 Hi, I’m MACHO
+- 👀 I’m interested in play barbie_eadventures
+- 🌱 I’m currently learnin manicure
+- 💞️ I’m looking to collaborate shereck jogar ff
+- 📫 How to reach me (190)
 
 <!---
 chubacamamado/chubacamamado is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
